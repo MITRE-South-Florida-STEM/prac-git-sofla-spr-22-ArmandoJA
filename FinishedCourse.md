@@ -1,4 +1,4 @@
-**Course Finished:**
+**Course Finished:** 👍
 
 *I finished checking out the course*
 
